@@ -1,4 +1,10 @@
-# Wassup2
-Wassup2
+# 안녕하세요! 처음 만들어본 git입니다!
 
-## Hello Wassup! Here is Minju's git!
+
+
+
+-------------------------------------------
+
+
+
+![무슨말을 해야할까] (https://www.lgcns.com/wp-content/uploads/2023/08/KakaoTalk_20230822_131928440.png)

@@ -7,4 +7,4 @@
 
 
 
-![무슨말을 해야할까] (https://www.lgcns.com/wp-content/uploads/2023/08/KakaoTalk_20230822_131928440.png)
+![무슨말을 해야할까](https://www.lgcns.com/wp-content/uploads/2023/08/KakaoTalk_20230822_131928440.png)
